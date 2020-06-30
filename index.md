@@ -9,3 +9,8 @@ Schweinskopf al dente ist ein deutscher Kriminalfilm von Ed Herzog aus dem Jahr 
 * macht am liebsten ein Nickerchen in seinem Saustall
 * Susi ist sein Gspusi
 * sein Vater kifft
+
+Franz Eberhofer's Filmzitat
+
+> Geh'n auch a bisserl dickere Scheiben?
+> I bin die Polizei!
